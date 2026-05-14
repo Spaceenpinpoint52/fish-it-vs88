@@ -1,4 +1,4 @@
-#  
+#  fish it stealth Scripts is the best fish it Script, featuring unlimited stamina and invisibility. Safe and powerful for all your needs.
 
 
 
